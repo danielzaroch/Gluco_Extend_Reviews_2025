@@ -30,7 +30,7 @@ This supplement is particularly **targeted toward type 2 diabetics, prediabetics
 
 <p align="center">
   <a href="https://88cde6ji42gz8m7dofrkn2an8w.hop.clickbank.net">
-    <img src="https://i.imgur.com/KlH65jb.png" width="640">
+    <img src="https://i.imgur.com/KlH65jb.png" width="370">
   </a>
 </p>
 
@@ -218,7 +218,7 @@ Gluco Extend takes a **multi-faceted approach** to managing blood sugar levels:
 
 <p align="center">
   <a href="https://88cde6ji42gz8m7dofrkn2an8w.hop.clickbank.net">
-    <img src="https://i.imgur.com/H7u1LCp.png" width="640">
+    <img src="https://i.imgur.com/H7u1LCp.png" width="430">
   </a>
 </p>
 
@@ -359,7 +359,7 @@ By taking Gluco Extend consistently, users can **maintain steady glucose levels*
 
 <p align="center">
   <a href="https://88cde6ji42gz8m7dofrkn2an8w.hop.clickbank.net">
-    <img src="https://i.imgur.com/KlH65jb.png" width="640">
+    <img src="https://i.imgur.com/KlH65jb.png" width="370">
   </a>
 </p>
 
@@ -474,7 +474,7 @@ By promoting **more stable blood sugar**, Gluco Extend **supports both physical 
 
 <p align="center">
   <a href="https://88cde6ji42gz8m7dofrkn2an8w.hop.clickbank.net">
-    <img src="https://i.imgur.com/H7u1LCp.png" width="640">
+    <img src="https://i.imgur.com/H7u1LCp.png" width="430">
   </a>
 </p>
 
